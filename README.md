@@ -1,2 +1,2 @@
 # COMPUTER-controll
-thus hust open story of joha with arabic
+this just open story of joha with arabic
